@@ -1,6 +1,7 @@
 My name is Theo, and I code stuff I guess.
 
 Email: vrified.stupd@gmail.com (I don't check my gmail that often lmao)
+
 Discord: vrifiedstupd
 
 I'm free to chat at weekend nights (Philippine time btw), just don't ask me for help, I'm not the right guy.
